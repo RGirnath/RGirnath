@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RGirnath
+- 👀 I’m interested in Data/Business Analysis
+- 🌱 I’m currently learning Mathematics at UC
+- 📫 How to reach me - r.girnath.jobs@gmail.com
